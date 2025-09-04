@@ -1,13 +1,10 @@
-heya!! call me cupid ^^
-
+heya!! call me cupid ^^ 
 i'm a minor, please treat me as such TwT
  
-cuddle + hug and interact freely, please whisper to interact
-
+cuddle + hug and interact freely, please whisper to interact 
 i may take ages to reply
  
-usually in the friday night funkin' or cookie run areas
-
+usually in the friday night funkin' or cookie run areas 
 if i'm not in safe server 1, please don't interact with me unless we're friends
  
 i am otis' #1 fan 
