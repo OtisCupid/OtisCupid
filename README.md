@@ -1,4 +1,4 @@
-heya!! call me cupid ^^ 
+heya!! call me cupid or aiden ^^ 
 
 i'm a minor, please treat me as such TwT
  
